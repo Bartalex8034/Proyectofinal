@@ -1,2 +1,0 @@
-# Proyectofinal
-Proyecto CD
